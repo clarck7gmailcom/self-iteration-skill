@@ -39,7 +39,7 @@
 - **Apple Books（免费试读版）**：https://books.apple.com/us/book/自我迭代-免费版/id6774988298?l=zh-Hans-CN （开放前 5 章免费试读）
 - **小红书（简体完整版 · 支持作者）**：在小红书 App 搜索「王叔-人生资产局」/ ID：clarckwang，进入主页 → 「个人售卖」栏目 → 选择《自我迭代》下单
 
-> 更多文章与关于作者的介绍：**[olawang.com](https://www.olawang.com)**
+> 更多文章与关于作者的介绍：**[olawang.com](https://www.olawang.com)**，在我的主页免费订阅可以获取全文独家洞察文章。
 
 ## 安装
 
